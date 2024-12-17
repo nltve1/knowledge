@@ -1,99 +1,98 @@
 The **2024 CrossFit Games** were the 18th edition of the premier
 competition in the sport of [CrossFit](CrossFit "wikilink"), that was
 held from August 9 to August 11, 2024, in [Fort Worth,
-Texas](Fort_Worth,_Texas "wikilink").[^1] The competition was won by
+Texas](Fort_Worth,_Texas "wikilink").[1] The competition was won by
 James Sprague and [Tia-Clair Toomey](Tia-Clair_Toomey "wikilink") for
-the individuals, Raw Iron CrossFit Mayhem Thunder for the team.[^2]
+the individuals, Raw Iron CrossFit Mayhem Thunder for the team.[2]
 
 The [CrossFit Games](CrossFit_Games "wikilink") were held in the
 [Dickies Arena](Dickies_Arena "wikilink") in Fort Worth this season
 after 6 years in the [Alliant Energy
 Center](Alliant_Energy_Center "wikilink") in [Madison,
-Wisconsin](Madison,_Wisconsin "wikilink").[^3] Due to the excessive
+Wisconsin](Madison,_Wisconsin "wikilink").[3] Due to the excessive
 summer heat in the [Dallas-Fort Worth
 metroplex](Dallas-Fort_Worth_metroplex "wikilink") which may be
 unsuitable for competitive sport outdoors, most of the events were held
-indoors.[^4] There was no title sponsor for the Games for the first time
+indoors.[4] There was no title sponsor for the Games for the first time
 since 2011, but there were two premier-level sponsors in GoRuck and
-[Rogue Fitness](Rogue_Fitness "wikilink").[^5] There was no change in
-the top prizes awarded this year; the total prize purse for the season
-amounted to over $3.3 million.[^6][^7]
+[Rogue Fitness](Rogue_Fitness "wikilink").[5] There was no change in the
+top prizes awarded this year; the total prize purse for the season
+amounted to over $3.3 million.[6][7]
 
 For the 2024 season, the finals of the Masters, Teens and Adaptive
 divisions were separated from the main CrossFit Games in Texas.
 Competitors 35 and over (Masters) competed in the Masters CrossFit
 Games, organized in association with the Legends Championship, held in
-[Birmingham, Alabama](Birmingham,_Alabama "wikilink").[^8] Competitors
+[Birmingham, Alabama](Birmingham,_Alabama "wikilink").[8] Competitors
 under 18 participated in the Teenage CrossFit Games, which was held in
 [Three Rivers, Michigan](Three_Rivers,_Michigan "wikilink") and the
 [Wings Event Center](Wings_Event_Center "wikilink") in [Kalamazoo,
-Michigan](Kalamazoo,_Michigan "wikilink").[^9] The adaptive athletes
+Michigan](Kalamazoo,_Michigan "wikilink").[9] The adaptive athletes
 competed in the Adaptive CrossFit Games by WheelWOD from September
 22–24, 2024 at the [Henry B. González Convention
 Center](Henry_B._González_Convention_Center "wikilink") in [San Antonio,
-Texas](San_Antonio,_Texas "wikilink").[^10][^11] All the divisions
-increased the number of participants in their finals.[^12]
+Texas](San_Antonio,_Texas "wikilink").[10][11] All the divisions
+increased the number of participants in their finals.[12]
 
 The first day of the main CrossFit Games, scheduled for August 8, 2024,
 was cancelled after Lazar Đukić got into difficulty and failed to
 resurface and died during the first event, an
-[aquathlon](aquathlon "wikilink").[^13] The competition resumed the
+[aquathlon](aquathlon "wikilink").[13] The competition resumed the
 following day after a consultation with the athletes, although a number
 of athletes including both 2023 champions [Laura
 Horvath](Laura_Horvath "wikilink") and [Jeffrey
 Adler](Jeffrey_Adler "wikilink") chose to withdraw from the
-competition.[^14] Other athletes also withdrew as the competition
-progressed.[^15]
+competition.[14] Other athletes also withdrew as the competition
+progressed.[15]
 
 ## Qualifications
 
 There are three qualification stages. As before, the CrossFit Games
 season starts with the Open, to be followed by the Quarterfinals and the
-Semi-finals.[^16] Some adjustments were made to the qualifying stages,
-in particular in the numbers of qualifiers from the Open and the
-Quarterfinals.[^17] All stages of the adaptive division this season
+Semi-finals.[16] Some adjustments were made to the qualifying stages, in
+particular in the numbers of qualifiers from the Open and the
+Quarterfinals.[17] All stages of the adaptive division this season
 including the Open were split off to be operated by WheelWOD, while the
 various stages for the age group divisions stayed the same apart from
-the finals.[^18][^19] As in 2023, there are seven competition regions,
-and athletes must compete in their designated region in the semi-finals
-unless exemptions had first been obtained.[^20][^21]
+the finals.[18][19] As in 2023, there are seven competition regions, and
+athletes must compete in their designated region in the semi-finals
+unless exemptions had first been obtained.[20][21]
 
 ### Open
 
 The Open started on February 29, 2024, and continued for three weeks
-until 18 March.[^22][^23] A workout was released every week for a total
-of 3 workouts.[^24][^25][^26] This year 343,528 athletes (344,396
-including the adaptive divisions) registered for the Open, up over 6%
-from 2023.[^27][^28] This year has the second highest number of
-returning athletes after 2018.[^29] The Open was won by Jonne Koski for
-the men and Mirjam von Rohr for the women.[^30]
+until 18 March.[22][23] A workout was released every week for a total of
+3 workouts.[24][25][26] This year 343,528 athletes (344,396 including
+the adaptive divisions) registered for the Open, up over 6% from
+2023.[27][28] This year has the second highest number of returning
+athletes after 2018.[29] The Open was won by Jonne Koski for the men and
+Mirjam von Rohr for the women.[30]
 
 ### Quarter-finals
 
 The number of qualifiers for the quarterfinals in every region has been
-increased from 10% of the Open participants to 25% this
-season.[^31][^32] The team quarterfinals took place on April 3–8, 2024,
-with the individual and age-group quarterfinals taking place on April
-17–22, 2024. Competitors have more time (two days longer) than previous
-years to complete their workouts.[^33] Four individual workouts were
-released on April 17, and scores from the first two needed to be
-submitted by April 20, with the final two on April 22.[^34]
+increased from 10% of the Open participants to 25% this season.[31][32]
+The team quarterfinals took place on April 3–8, 2024, with the
+individual and age-group quarterfinals taking place on April 17–22,
+2024. Competitors have more time (two days longer) than previous years
+to complete their workouts.[33] Four individual workouts were released
+on April 17, and scores from the first two needed to be submitted by
+April 20, with the final two on April 22.[34]
 
 ### Semi-finals
 
 The number of individual qualifiers for the semi-final for every region
 has been set at 40, meaning that the number of qualifiers for the North
 America and Europe regions has been reduced from 60 to 40, while the
-rest will be increased from 30 to 40.[^35][^36] Similarly, the
-qualifiers for the team competition for every region has been set at
-30.[^37] As in previous years, the semi-finals will be live
-competitions. Each semi-final will a pre-determined minimum number of
-qualifiers, but the final number that qualified from each semi-final for
-the Games will be determined by a strength-of-field calculation used in
-2023.[^38][^39] However, this year only those taking part in individual
-Semi-finals counted in the calculation, a change that favored smaller
-regions and resulted in fewer qualifying spots for North America and
-Europe.[^40]
+rest will be increased from 30 to 40.[35][36] Similarly, the qualifiers
+for the team competition for every region has been set at 30.[37] As in
+previous years, the semi-finals will be live competitions. Each
+semi-final will a pre-determined minimum number of qualifiers, but the
+final number that qualified from each semi-final for the Games will be
+determined by a strength-of-field calculation used in 2023.[38][39]
+However, this year only those taking part in individual Semi-finals
+counted in the calculation, a change that favored smaller regions and
+resulted in fewer qualifying spots for North America and Europe.[40]
 
 ## Qualifiers
 
@@ -101,9 +100,9 @@ Europe.[^40]
 
 In 2024, a total of 40 men (23 consecutively) and a total of 40 women
 (19 consecutively) qualified for the finals to compete as
-individuals.[^41] The number of individual competitors would be cut
+individuals.[41] The number of individual competitors would be cut
 during the competition, to 30 on Saturday afternoon, and 20 by Sunday
-morning.[^42]
+morning.[42]
 
 <table>
 <thead>
@@ -281,7 +280,7 @@ Dawon Jung<br />
 
 ### Teams
 
-In 2024, a total of 30 teams will qualify for the finals[^43]
+In 2024, a total of 30 teams will qualify for the finals[43]
 
 <table>
 <thead>
@@ -367,19 +366,19 @@ EFX</p></td>
 This is the first year the competition will be held at the [Dickies
 Arena](Dickies_Arena "wikilink") in Fort Worth. Events open to public
 will also be held on Friday night at the nearby [Farrington
-Field](Farrington_Field "wikilink").[^44] The cuts this year were to
-have been similar to the 2023 Games with a change, and the field will be
-cut to 30 athletes after the Saturday morning event, and to 20 by the
-end of the day.[^45] The cut was later changed in an announcement when
+Field](Farrington_Field "wikilink").[44] The cuts this year were to have
+been similar to the 2023 Games with a change, and the field will be cut
+to 30 athletes after the Saturday morning event, and to 20 by the end of
+the day.[45] The cut was later changed in an announcement when
 competition resumed after Events 2 and 3 were cancelled, and only one
 cut was made with 30 athletes competing in the final day (around 16 male
 and female individual athletes had already withdrawn by Saturday). The
 events were broadcast on ESPN, ESPN2, and ESPN+ in the United
-States.[^46]
+States.[46]
 
 ### August 8, 2024
 
-Source:[^47]
+Source:[47]
 
 #### Event 1: Lake Day
 
@@ -388,17 +387,17 @@ run followed by an 800-metre swim. The event was held on Marine Creek
 Lake near the city of Fort Worth in the morning. Lazar Đukić, who was
 among the leaders in the swim, struggled in the water and failed to
 resurface. His body was later recovered and the following events for the
-day were canceled.[^48]
+day were canceled.[48]
 
 A meeting with all athletes and coaches as well as Đukić's brother Luka
 (who also competed) and other family members was held in the afternoon,
-and it was agreed to continue with the competition on Friday.[^49]
+and it was agreed to continue with the competition on Friday.[49]
 However, Luka Đukić later revealed he had not agreed to the continuation
 of the competition as a tribute to Lazar as claimed by the leader of the
-sport team Dave Castro.[^50] A number of athletes, including both 2023
+sport team Dave Castro.[50] A number of athletes, including both 2023
 champions [Laura Horvath](Laura_Horvath "wikilink") and [Jeffrey
 Adler](Jeffrey_Adler "wikilink") as well as Luka Đukić, chose to
-withdraw from the competition.[^51]
+withdraw from the competition.[51]
 
 <div style="height:13.5em; overflow:auto; border:30px; ">
 
@@ -4874,30 +4873,30 @@ Horvath</a></p></td>
 
 The first day (Thursday) was cancelled after a fatality in the first
 event, an [aquathlon](aquathlon "wikilink") that featured a run followed
-by an swim at Marine Creek Lake Park and Trail.[^52][^53] Tarrant County
+by an swim at Marine Creek Lake Park and Trail.[52][53] Tarrant County
 officials officially confirmed Lazar Đukić, a 28-year-old Serbian
-competitor, died during the swim portion of the aquathlon.[^54][^55] An
+competitor, died during the swim portion of the aquathlon.[54][55] An
 investigation into the death, including an independent third-party
-review, was announced.[^56] The [Professional Fitness Athletes'
+review, was announced.[56] The [Professional Fitness Athletes'
 Association](Professional_Fitness_Athletes'_Association "wikilink"), a
 group that represents the interest of CrossFit athletes, demanded that
 there should be "appropriate level of transparency" on the third-party
 investigation and subsequent changes to protect the athletes, that an
 independent safety team should be created, and that Dave Castro, the
-leader of the sport team, should be removed.[^57][^58][^59]
+leader of the sport team, should be removed.[57][58][59]
 
 This is not the first time that the swim portion of a CrossFit event has
 raised safety concerns. During the 2017 CrossFit Games, Brent Fikowski,
 who later founded PFAA, prevented fellow competitor Mat Fraser from
-drowning when he outpaced himself during a run-swim-run event.[^60]
+drowning when he outpaced himself during a run-swim-run event.[60]
 According to Fraser's at-the-time endurance coach, Chris Hinshaw, Fraser
 had started bobbing in the water after outpacing himself and "was going
-to drown."[^61]
+to drown."[61]
 
 ## Team competition
 
 The teams events for August 8 were canceled after the drowning of a
-competitor.[^62] Two teams also withdrew from the competition.[^63]
+competitor.[62] Two teams also withdrew from the competition.[63]
 
 ### August 9, 2024
 
@@ -5134,46 +5133,183 @@ Masters CrossFit Games were held on August 29-September 1 at the
 [Birmingham-Jefferson County Civic
 Center](Birmingham-Jefferson_County_Civic_Center "wikilink"). A 70+
 division was added as a trial, but it was not considered part of the
-CrossFit Games season. Team events were also held.[^64] The Teenage
+CrossFit Games season. Team events were also held.[64] The Teenage
 CrossFit Games were held on August 30-September 1 at CrossFit Triple
 Ranch in [Three Rivers, Michigan](Three_Rivers,_Michigan "wikilink") and
 the [Wings Event Center](Wings_Event_Center "wikilink") in [Kalamazoo,
 Michigan](Kalamazoo,_Michigan "wikilink"). Two other competitions, Pit
 Teen Throwdown and Pit Collegiate Throwdown were also held there at the
-same time but they were not part of the CrossFit Games.[^65]
+same time but they were not part of the CrossFit Games.[65]
 
 ### Masters men
 
-| Place[^66] | 35–39 | 40–44 | 45–49 | 50–54 | 55–59 | 60–64 | 65+ |
-|----|----|----|----|----|----|----|----|
-| 1st | Will Moorad | Jonathan Edel | Jason Grubb | Justin LaSala | John Kim | Joe Ames | John George |
-| 2nd | Henry Matthews | Chicho Quesada | Robby McCord | Shawn Ramirez | Vic McQuaide | David Powell | Freddie Cherry |
-| 3rd | Bronislaw Olenkowicz | Julian Serna | Robbie Perovich | Joel Hughes | Leonardo Wernersbach Lima | Tom Fameree | David Hippensteel |
+<table>
+<thead>
+<tr>
+<th><p>Place<a href="#fn1" class="footnote-ref" id="fnref1"
+role="doc-noteref"><sup>1</sup></a></p></th>
+<th><p>35–39</p></th>
+<th><p>40–44</p></th>
+<th><p>45–49</p></th>
+<th><p>50–54</p></th>
+<th><p>55–59</p></th>
+<th><p>60–64</p></th>
+<th><p>65+</p></th>
+</tr>
+</thead>
+<tbody>
+<tr>
+<td><p>1st</p></td>
+<td><p>Will Moorad</p></td>
+<td><p>Jonathan Edel</p></td>
+<td><p>Jason Grubb</p></td>
+<td><p>Justin LaSala</p></td>
+<td><p>John Kim</p></td>
+<td><p>Joe Ames</p></td>
+<td><p>John George</p></td>
+</tr>
+<tr>
+<td><p>2nd</p></td>
+<td><p>Henry Matthews</p></td>
+<td><p>Chicho Quesada</p></td>
+<td><p>Robby McCord</p></td>
+<td><p>Shawn Ramirez</p></td>
+<td><p>Vic McQuaide</p></td>
+<td><p>David Powell</p></td>
+<td><p>Freddie Cherry</p></td>
+</tr>
+<tr>
+<td><p>3rd</p></td>
+<td><p>Bronislaw Olenkowicz</p></td>
+<td><p>Julian Serna</p></td>
+<td><p>Robbie Perovich</p></td>
+<td><p>Joel Hughes</p></td>
+<td><p>Leonardo Wernersbach Lima</p></td>
+<td><p>Tom Fameree</p></td>
+<td><p>David Hippensteel</p></td>
+</tr>
+</tbody>
+</table>
+<section id="footnotes" class="footnotes footnotes-end-of-document"
+role="doc-endnotes">
+<hr />
+<ol>
+<li id="fn1"><a href="#fnref1" class="footnote-back"
+role="doc-backlink">↩︎</a></li>
+</ol>
+</section>
 
 Note: Jamie McGarva finished second in Men's 50-54 but was disqualified
 after a positive test for [GW501516](GW501516 "wikilink").
 
 ### Masters women
 
-| Place[^67] | 35–39 | 40–44 | 45–49 | 50–54 | 55–59 | 60–64 | 65+ |
-|----|----|----|----|----|----|----|----|
-| 1st | Andrea Nisler | Carly Newlands | Deanna Posey | Janet Black | Joyanne Cooper | Laurie Meschishnick | Patricia McGill |
-| 2nd | Caroline Kluttz | Andreia Pinheiro | Kelly Friel | Jen Dieter | Tiiu Maavere | Betsy Vanderburgh | Denise Moore |
-| 3rd | Sami Scorzelli | Carleen Mathews | {Vol Voboril} | Kim Purdy | Tia Vesser | Marion Valkenburg | Julie Holt |
+<table>
+<thead>
+<tr>
+<th><p>Place<a href="#fn1" class="footnote-ref" id="fnref1"
+role="doc-noteref"><sup>1</sup></a></p></th>
+<th><p>35–39</p></th>
+<th><p>40–44</p></th>
+<th><p>45–49</p></th>
+<th><p>50–54</p></th>
+<th><p>55–59</p></th>
+<th><p>60–64</p></th>
+<th><p>65+</p></th>
+</tr>
+</thead>
+<tbody>
+<tr>
+<td><p>1st</p></td>
+<td><p>Andrea Nisler</p></td>
+<td><p>Carly Newlands</p></td>
+<td><p>Deanna Posey</p></td>
+<td><p>Janet Black</p></td>
+<td><p>Joyanne Cooper</p></td>
+<td><p>Laurie Meschishnick</p></td>
+<td><p>Patricia McGill</p></td>
+</tr>
+<tr>
+<td><p>2nd</p></td>
+<td><p>Caroline Kluttz</p></td>
+<td><p>Andreia Pinheiro</p></td>
+<td><p>Kelly Friel</p></td>
+<td><p>Jen Dieter</p></td>
+<td><p>Tiiu Maavere</p></td>
+<td><p>Betsy Vanderburgh</p></td>
+<td><p>Denise Moore</p></td>
+</tr>
+<tr>
+<td><p>3rd</p></td>
+<td><p>Sami Scorzelli</p></td>
+<td><p>Carleen Mathews</p></td>
+<td><p>{Vol Voboril}</p></td>
+<td><p>Kim Purdy</p></td>
+<td><p>Tia Vesser</p></td>
+<td><p>Marion Valkenburg</p></td>
+<td><p>Julie Holt</p></td>
+</tr>
+</tbody>
+</table>
+<section id="footnotes" class="footnotes footnotes-end-of-document"
+role="doc-endnotes">
+<hr />
+<ol>
+<li id="fn1"></li>
+</ol>
+</section>
 
 ### Teens
 
-| Place[^68] | 14–15 Boys       | 14–15 Girls      | 16–17 Boys    | 16–17 Girls      |
-|------------|------------------|------------------|---------------|------------------|
-| 1st        | Pablo Tronchon   | Keira McManus    | RJ Mestre     | Reese Littlewood |
-| 2nd        | Akil Lopez       | Ana Laura Cattai | Kaiden Steyn  | Elsie Larson     |
-| 3rd        | Redding Williams | Trenna Gessell   | Kā'eo Subiono | Lucy McGonigle   |
+<table>
+<thead>
+<tr>
+<th><p>Place<a href="#fn1" class="footnote-ref" id="fnref1"
+role="doc-noteref"><sup>1</sup></a></p></th>
+<th><p>14–15 Boys</p></th>
+<th><p>14–15 Girls</p></th>
+<th><p>16–17 Boys</p></th>
+<th><p>16–17 Girls</p></th>
+</tr>
+</thead>
+<tbody>
+<tr>
+<td><p>1st</p></td>
+<td><p>Pablo Tronchon</p></td>
+<td><p>Keira McManus</p></td>
+<td><p>RJ Mestre</p></td>
+<td><p>Reese Littlewood</p></td>
+</tr>
+<tr>
+<td><p>2nd</p></td>
+<td><p>Akil Lopez</p></td>
+<td><p>Ana Laura Cattai</p></td>
+<td><p>Kaiden Steyn</p></td>
+<td><p>Elsie Larson</p></td>
+</tr>
+<tr>
+<td><p>3rd</p></td>
+<td><p>Redding Williams</p></td>
+<td><p>Trenna Gessell</p></td>
+<td><p>Kā'eo Subiono</p></td>
+<td><p>Lucy McGonigle</p></td>
+</tr>
+</tbody>
+</table>
+<section id="footnotes" class="footnotes footnotes-end-of-document"
+role="doc-endnotes">
+<hr />
+<ol>
+<li id="fn1"><a href="#fnref1" class="footnote-back"
+role="doc-backlink">↩︎</a></li>
+</ol>
+</section>
 
 ## Adaptive divisions
 
 The 2024 Adaptive CrossFit Games was held at Morgan’s Wonderland and the
 Henry B. Gonzalez Convention Center on September 19–22, in [San Antonio,
-Texas](San_Antonio,_Texas "wikilink").[^69]
+Texas](San_Antonio,_Texas "wikilink").[66]
 
 ## References
 
